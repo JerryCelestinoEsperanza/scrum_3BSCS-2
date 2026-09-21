@@ -5,7 +5,7 @@ Scrum Masters update/put your name here:
 
 SM of Lovelace: 
 
-SM of Baiyogesic: 
+SM of Baiyogesic: Ryan ito
 
 SM of Oopsie: 
 
