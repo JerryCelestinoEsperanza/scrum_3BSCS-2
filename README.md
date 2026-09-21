@@ -7,7 +7,7 @@ SM of Lovelace:
 
 SM of Baiyogesic: Ryan ito
 
-SM of Oopsie: 
+SM of Oopsie: Delima ito
 
 SM si Ayap : Sir Jerry ito
 
