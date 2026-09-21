@@ -5,9 +5,9 @@ Scrum Masters update/put your name here:
 
 SM of Lovelace: Ayap, Kate
 
-SM of Baiyogesic: 
+SM of Baiyogesic: Ryan ito
 
-SM of Oopsie: 
+SM of Oopsie: Delima ito
 
 SM si Ayap : Sir Jerry ito
 
