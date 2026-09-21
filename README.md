@@ -9,4 +9,6 @@ SM of Baiyogesic:
 
 SM of Oopsie: 
 
+SM si Ayap : Sir Jerry ito
+
 
